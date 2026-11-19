@@ -1,4 +1,4 @@
-# divacathollywood
+# ♡ Diva Cat: Hollywood ♡
 An upcoming remake of Kim Kardashian Hollywood
 
 Teaser: http://www.kamtape.com/watch?v=DVYYJNn0s6A
